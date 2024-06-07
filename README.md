@@ -1,4 +1,4 @@
-Hi 👋 My name is Vinaya Redekar
+Hi 👋 Myself, Vinaya Redekar :)
 ===============================
 
 Aspiring Data Analyst
